@@ -1,6 +1,11 @@
 - 👋 Hi, I’m @eltha9
-- 👀 I’m interested web developement, in gardening & electronics
+- 👀 I’m interested in web developement, gardening & electronics (just imagine if I put together those hobbies... )
 
 
-This is active writing 
+What can I tell more ? 
+
+- I freshly ended my degree
+- I'm lookig for a job
+- Big point the joblooking
+- Do not hessitate to contact by email (best than phone call)
 
