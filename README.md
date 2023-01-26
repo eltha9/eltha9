@@ -5,5 +5,4 @@
 What can I tell more ? 
 
 - I freshly ended my degree
-- Currently working as a Front end developer
 
